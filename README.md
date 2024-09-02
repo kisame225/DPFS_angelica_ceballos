@@ -20,9 +20,13 @@ paginas de referencias
 -----------------------
 tomy y levy por su estructura y calvin klein  devido a su estetica visual la que me genera el minimalismo, wix debido a sus ideas predeterminadas para crear paginas.
 https://pa.tommy.com/
+
 https://www.levi.com.pa/?gad_source=1&gclid=CjwKCAjwxNW2BhAkEiwA24Cm9GG-X8KNF64bMCCmx7gy2sQ0G0h8UpgfcH43idRzgRRMRQXfZ2BlEBoCFV4QAvD_Bw
+
 https://www.calvinklein.pa/?srsltid=AfmBOoq0oG84tFrVTT0qgcazsc3sJzHZOHvjitUYa0IYJM3kFIXgK3Ou
+
 https://es.wix.com/
+
 https://www.amazon.com/?&tag=googleglobalp-20&ref=pd_sl_7nnedyywlk_e&adgrpid=159651196451&hvpone=&hvptwo=&hvadid=675114638367&hvpos=&hvnetw=g&hvrand=12882428108058460169&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1011094&hvtargid=kwd-10573980&hydadcr=2246_13468515
 
 
